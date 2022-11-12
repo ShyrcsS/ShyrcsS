@@ -1,1 +1,1 @@
-<div align="center"><a href="https://discord.gg/jWWuYEJwBM"><img alt="Discord - Leak2VN" src="https://media.discordapp.net/attachments/1025704497223323701/1033191165123641354/profile..png?width=507&height=422"></a></div>
+<div align="center"><a href="https://discord.gg"><img alt="Discord - Shyr#2006 - Simp Nahida" src="https://media.discordapp.net/attachments/1025704497223323701/1033191165123641354/profile..png?width=507&height=422"></a></div>
